@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data  Analysis
 - 💞️ I’m looking to collaborate on ...
 - 📫 sevgiaslan927@gmail.com
-- 😄 Pronouns: :)
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
 <!---
